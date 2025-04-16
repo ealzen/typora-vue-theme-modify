@@ -23,4 +23,4 @@
 
 ![Screenshot 2](http://xxx111e.com/screen_02.png)
 
-![Screenshot 3](http://xxx111e.com/screen_03.png)s
+![Screenshot 3](http://xxx111e.com/screen_03.png)
